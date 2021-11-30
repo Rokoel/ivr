@@ -3,6 +3,8 @@
 ### Группа: 10 - МИ - 2
 ### Электронная почта: rokoelvel@gmail.com
 ### VK: www.vk.com/rokoelakk
+### TG: @rokoel
+### Discord: Rokoel#9384
 
 
 **[ НАЗВАНИЕ ПРОЕКТА ]**
